@@ -1,1 +1,0 @@
-# nmzorz.github.io
